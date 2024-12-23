@@ -1,4 +1,4 @@
-# Bluehost Free Trial 2024: Try Hosting For 30 Days ️‍🔥
+# Bluehost Free Trial 2025: Try Hosting For 30 Days ️‍🔥
 
 Want to claim a [Bluehost Free Trial for 30 days](https://www.linkedin.com/pulse/bluehost-free-trial-30-days-hosting-march-2024-webhostingcoupon-wuzzc/) in 2024?
 
